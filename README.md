@@ -1,0 +1,1 @@
+# Fully-Flexible-Slot-System-For-Shops
